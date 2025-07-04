@@ -17,4 +17,4 @@
 
 整体而言，提供免费、高清、无广告的日本AV观看服务，是为了满足广大用户的需求，同时注重内容质量和用户体验。这样不仅提高了用户满意度，也有助于网站在搜索引擎中获得更高的排名和更稳定的流量。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link]( https://github.com/fkt20250704/fkt13 ）</span>
